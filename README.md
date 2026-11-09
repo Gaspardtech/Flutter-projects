@@ -39,5 +39,5 @@ Languages
 Contact
 
 GitHub: https://github.com/gaspardTech
-or gaspardmuhongo@gmail.com
-or whatsapp +243 982808079
+Email : gaspardmuhongo@gmail.com
+Whatsapp : +243 982808079
